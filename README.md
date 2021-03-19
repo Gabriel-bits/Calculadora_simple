@@ -7,4 +7,5 @@ tentar da passos maiores do que a perna
 o risco de dar de cara no chão
 e muito grande.
 
-**s**
+$o$
+*$o$*
